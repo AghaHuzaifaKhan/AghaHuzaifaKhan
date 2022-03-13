@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AghaHuzaifaKhan
 - 👀 I’m interested in Programming
-- 🌱 I’m currently learning BS(CS)
+- 🌱 I’m currently Studying BS(CS)
 - 📫 Reach me thorugh My Gamil: aghahuzaifakhan6@gmail.com
 
 <!---
